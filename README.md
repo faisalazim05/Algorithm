@@ -1,3 +1,0 @@
-# Algorithm
-Algorithm
-A :Faisal
